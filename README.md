@@ -1,1 +1,1 @@
-redmi note 9
+redmi note 298 part 290
